@@ -1,7 +1,7 @@
 - 👋 Hi, I’m iro from Zuri History
-- 👀 I’m interested in new era of NFT
+- 👀 I’m interested in the new era of NFT
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on CNFT fork project
+- 💞️ I’m want to add my Project policy on CNFT fork
 - 📫 https://twitter.com/irosuker
 
 <!---
