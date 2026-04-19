@@ -1,5 +1,5 @@
 - 👋 Hi, I’m iro from Iro & Me Creative Studio 👋
 - 👀 Wooh AI 👀
 - 🌱 I love plants 🌱
-- 💞️ Film making 💞️
+- 💞️ Filmmaking 💞️
 - 📫 www.iroandme.com
